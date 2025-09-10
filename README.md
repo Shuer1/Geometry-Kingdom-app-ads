@@ -1,1 +1,0 @@
-# Geometry-Kingdom-app-ads
